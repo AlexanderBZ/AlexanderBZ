@@ -1,4 +1,4 @@
-🎉 I’m @AlexanderBZ
+🎉 I’m [@AlexanderBZ](https://github.com/AlexanderBZ)
 
 🔥 I build fun and helpful things on the internet
 
